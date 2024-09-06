@@ -1,6 +1,6 @@
 💫 About Me:
 
-Computer Engineering 2025-2029<br><br>Currently working on improving my electrical engineering skills <br>Looking for insights on circuiting <br>Learning about Integrated Circuits and more 
+Computer Engineering 2025-2029Currently working on improving my electrical engineering skills <br>Looking for insights on circuiting <br>Learning about Integrated Circuits and more 
 
 
 ## 🌐 Socials:
